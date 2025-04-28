@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @mubeenbahoo11
-- 👀 I’m interested in Digital Marketing and ERP Implementation
-- 🌱 I’m currently learning new skills in Advanced Social Media Marketing Strategy
+- 👀 I’m interested in ERP Implementation & Digital Transformation.
 - 💞️ I’m looking to collaborate on the same
 - 📫 How to reach me mubeen@istallena.com
 
